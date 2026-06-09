@@ -1,4 +1,4 @@
-# 
+# Avanzado Norton 360 plugins para Mac OS | Automático Norton 360 plugins para PC Windows. Con herencia de contraseñas y servidores de alta velocidad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
